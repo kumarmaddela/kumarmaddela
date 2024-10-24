@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kumarmaddela
-- 👀 I’m interested in ...buliding my on things
+- 👀 I’m interested in ...buliding my own things
 - 🌱 I’m currently learning ...python 
 - 💞️ I’m looking to collaborate on ..creative headsq]
 - 📫 How to reach me ...maddela.kumarbalasai@gmail.com
